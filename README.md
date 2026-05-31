@@ -34,7 +34,7 @@ Cloudflare baik banget jir 😭🙏 Lu wajib cobain sekarang juga 🫵
 
 <img src="./assets/Winter%20Aespa%20(Cloudflare%20+%20Bun%20Theme).png" width="920" alt="Winter Aespa Cloudflare Bun Theme" />
 
-### Calon my bini gweh 😛
+### Calon my bini gweh 😍
 
 Winter cantik banget jir 😭 Doain guys, semoga kesampaian, minimal ketemu di fansign dulu 🙏
 
